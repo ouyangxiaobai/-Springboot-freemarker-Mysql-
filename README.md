@@ -49,6 +49,7 @@ https://www.bilibili.com/video/BV1fA4y1Z7nJ/
 
 毕业论文、课程设计、公司项目参考
 
-运行截图:
+获取数据库文件
+QQ:3484724101
 
            
